@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-im ✨ _special_ ✨ 
+I'm Arushi, here are a few things about me- 
 
 - 🔭 I’m currently working on developing my technical and interpersonal skills.
 - 🌱 I’m a junior pursuing a bachelors in Computer Engineering.
